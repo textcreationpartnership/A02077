@@ -36,9 +36,33 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The history of Arbasto King of Denmarke Describing the anatomy of fortune, his loue to faire Doralic
+
+1. To the Right Honourable and Vertuous Ladie, the Ladie Mary Tol••t, wi•e to the right Honourable, Gilbert, Lord Talbot: Robert Greene, wisheth increase of Honour and Vertu•.
+
+1. To the Gentlemen Readers, health.
+
+1. The Contents of this History.
+
 #####Body#####
-The history of Arbasto King of Denmarke Describing the anatomy of fortune, his loue to faire Doralic
+
+1. THE HISTORIE of Arbasto, with the Anatomy of Fortune. CHAP. 1. Arbasto is discouered in his retired life by the Traueller•
+
+1. CHAP. 2. Ar•as•• re••••th his story and discouereth himselfe.
+
+1. CHAP. 3. Arbasto in loue with Doralicia, and Myrania with Arbasto, haue hau• opportunitie to discouer the same.
+
+1. CHAP. 4. Arbasto and Myrania with seuerall coniectures for loue, renewed their complaints.
+
+1. CHAP. 5. Arbasto is traiterously surprised by Pelorus, and imprisoned in OrOrleance, with all his army defeated.
+
+1. CHAP. 6. Myrania in loue with Arbasto• contriueth his deliuery out of prison by a secret policy.
+
+1. CHAP. 7. Arbasto strangely transported with Doralicia• loue, forgetteth Myranias kindnesse, and sendeth couertly to Doralicia, who againe denieth him.
+
+1. CHAP. 8• After Myranias death, Doralicia relenteth, and sendeth to Arb•sto, who then hated her as much as he loued her before.
+
+1. CHAP. 9. Doralicia hauing receiued Ar•astoes vnkind answere, dieth of a Frenz•e: and Arbasto is banished his Kingdome.
+
 **Types of content**
 
   * There are 34 **verse** lines!
